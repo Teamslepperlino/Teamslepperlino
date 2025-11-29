@@ -13,7 +13,7 @@
 
 - 📝 I regularly write articles on [https://tspl-studios.de/blogs](https://tspl-studios.de/blogs)
 
-- ⚡ Fun fact [I'm a cute little Furry :3](I'm a cute little Furry :3)
+- ⚡ Fun fact I'm a cute little Furry :3](I'm a cute little Furry :3
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
